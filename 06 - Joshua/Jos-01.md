@@ -1,0 +1,45 @@
+# Joshua 1
+
+[[Joshua]] | [[Jos-02|Joshua - Chapter 2 ]]
+***
+
+###### v1
+After the death of Moses the servant of the LORD, the LORD spoke to Joshua son of Nun, Moses' assistant, saying,
+###### v2
+"My servant Moses is dead. Now proceed to cross the Jordan, you and all this people, into the land that I am giving to them, to the Israelites.
+###### v3
+Every place that the sole of your foot will tread upon I have given to you, as I promised to Moses.
+###### v4
+From the wilderness and the Lebanon as far as the great river, the river Euphrates, all the land of the Hittites, to the Great Sea in the west shall be your territory.
+###### v5
+No one shall be able to stand against you all the days of your life. As I was with Moses, so I will be with you; I will not fail you or forsake you.
+###### v6
+Be strong and courageous; for you shall put this people in possession of the land that I swore to their ancestors to give them.
+###### v7
+Only be strong and very courageous, being careful to act in accordance with all the law that my servant Moses commanded you; do not turn from it to the right hand or to the left, so that you may be successful wherever you go.
+###### v8
+This book of the law shall not depart out of your mouth; you shall meditate on it day and night, so that you may be careful to act in accordance with all that is written in it. For then you shall make your way prosperous, and then you shall be successful.
+###### v9
+I hereby command you: Be strong and courageous; do not be frightened or dismayed, for the LORD your God is with you wherever you go."
+###### v10
+Then Joshua commanded the officers of the people,
+###### v11
+"Pass through the camp, and command the people: 'Prepare your provisions; for in three days you are to cross over the Jordan, to go in to take possession of the land that the LORD your God gives you to possess.'"
+###### v12
+To the Reubenites, the Gadites, and the half-tribe of Manasseh Joshua said,
+###### v13
+"Remember the word that Moses the servant of the LORD commanded you, saying, 'The LORD your God is providing you a place of rest, and will give you this land.'
+###### v14
+Your wives, your little ones, and your livestock shall remain in the land that Moses gave you beyond the Jordan. But all the warriors among you shall cross over armed before your kindred and shall help them,
+###### v15
+until the LORD gives rest to your kindred as well as to you, and they too take possession of the land that the LORD your God is giving them. Then you shall return to your own land and take possession of it, the land that Moses the servant of the LORD gave you beyond the Jordan to the east."
+###### v16
+They answered Joshua: "All that you have commanded us we will do, and wherever you send us we will go.
+###### v17
+Just as we obeyed Moses in all things, so we will obey you. Only may the LORD your God be with you, as he was with Moses!
+###### v18
+Whoever rebels against your orders and disobeys your words, whatever you command, shall be put to death. Only be strong and courageous."
+
+***
+
+[[Joshua]] | [[Jos-02|Joshua - Chapter 2 ]]

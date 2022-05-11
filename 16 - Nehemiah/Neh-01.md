@@ -1,0 +1,31 @@
+# Nehemiah 1
+
+[[Nehemiah]] | [[Neh-02|Nehemiah - Chapter 2 ]]
+***
+
+###### v1
+The words of Nehemiah son of Hacaliah. In the month of Chislev, in the twentieth year, while I was in Susa the capital,
+###### v2
+one of my brothers, Hanani, came with certain men from Judah; and I asked them about the Jews that survived, those who had escaped the captivity, and about Jerusalem.
+###### v3
+They replied, "The survivors there in the province who escaped captivity are in great trouble and shame; the wall of Jerusalem is broken down, and its gates have been destroyed by fire."
+###### v4
+When I heard these words I sat down and wept, and mourned for days, fasting and praying before the God of heaven.
+###### v5
+I said, "O LORD God of heaven, the great and awesome God who keeps covenant and steadfast love with those who love him and keep his commandments;
+###### v6
+let your ear be attentive and your eyes open to hear the prayer of your servant that I now pray before you day and night for your servants, the people of Israel, confessing the sins of the people of Israel, which we have sinned against you. Both I and my family have sinned.
+###### v7
+We have offended you deeply, failing to keep the commandments, the statutes, and the ordinances that you commanded your servant Moses.
+###### v8
+Remember the word that you commanded your servant Moses, 'If you are unfaithful, I will scatter you among the peoples;
+###### v9
+but if you return to me and keep my commandments and do them, though your outcasts are under the farthest skies, I will gather them from there and bring them to the place at which I have chosen to establish my name.'
+###### v10
+They are your servants and your people, whom you redeemed by your great power and your strong hand.
+###### v11
+O Lord, let your ear be attentive to the prayer of your servant, and to the prayer of your servants who delight in revering your name. Give success to your servant today, and grant him mercy in the sight of this man!" At the time, I was cupbearer to the king.
+
+***
+
+[[Nehemiah]] | [[Neh-02|Nehemiah - Chapter 2 ]]

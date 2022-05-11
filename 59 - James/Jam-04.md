@@ -1,0 +1,43 @@
+# James 4
+
+[[Jam-03|James - Chapter 3 ]] | [[James]] | [[Jam-05|James - Chapter 5 ]]
+***
+
+###### v1
+Those conflicts and disputes among you, where do they come from? Do they not come from your cravings that are at war within you?
+###### v2
+You want something and do not have it; so you commit murder. And you covet something and cannot obtain it; so you engage in disputes and conflicts. You do not have, because you do not ask.
+###### v3
+You ask and do not receive, because you ask wrongly, in order to spend what you get on your pleasures.
+###### v4
+Adulterers! Do you not know that friendship with the world is enmity with God? Therefore whoever wishes to be a friend of the world becomes an enemy of God.
+###### v5
+Or do you suppose that it is for nothing that the scripture says, "God yearns jealously for the spirit that he has made to dwell in us"?
+###### v6
+But he gives all the more grace; therefore it says, "God opposes the proud, but gives grace to the humble."
+###### v7
+Submit yourselves therefore to God. Resist the devil, and he will flee from you.
+###### v8
+Draw near to God, and he will draw near to you. Cleanse your hands, you sinners, and purify your hearts, you double-minded.
+###### v9
+Lament and mourn and weep. Let your laughter be turned into mourning and your joy into dejection.
+###### v10
+Humble yourselves before the Lord, and he will exalt you.
+###### v11
+Do not speak evil against one another, brothers and sisters. Whoever speaks evil against another or judges another, speaks evil against the law and judges the law; but if you judge the law, you are not a doer of the law but a judge.
+###### v12
+There is one lawgiver and judge who is able to save and to destroy. So who, then, are you to judge your neighbor?
+###### v13
+Come now, you who say, "Today or tomorrow we will go to such and such a town and spend a year there, doing business and making money."
+###### v14
+Yet you do not even know what tomorrow will bring. What is your life? For you are a mist that appears for a little while and then vanishes.
+###### v15
+Instead you ought to say, "If the Lord wishes, we will live and do this or that."
+###### v16
+As it is, you boast in your arrogance; all such boasting is evil.
+###### v17
+Anyone, then, who knows the right thing to do and fails to do it, commits sin.
+
+***
+
+[[Jam-03|James - Chapter 3 ]] | [[James]] | [[Jam-05|James - Chapter 5 ]]

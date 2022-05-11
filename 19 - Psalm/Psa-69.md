@@ -1,0 +1,81 @@
+# Psalm 69
+
+[[Psa-68|Psalm - Chapter 68 ]] | [[Psalm]] | [[Psa-70|Psalm - Chapter 70 ]]
+***
+
+###### v1
+Save me, O God, for the waters have come up to my neck.
+###### v2
+I sink in deep mire, where there is no foothold; I have come into deep waters, and the flood sweeps over me.
+###### v3
+I am weary with my crying; my throat is parched. My eyes grow dim with waiting for my God.
+###### v4
+More in number than the hairs of my head are those who hate me without cause; many are those who would destroy me, my enemies who accuse me falsely. What I did not steal must I now restore?
+###### v5
+O God, you know my folly; the wrongs I have done are not hidden from you.
+###### v6
+Do not let those who hope in you be put to shame because of me, O Lord GOD of hosts; do not let those who seek you be dishonored because of me, O God of Israel.
+###### v7
+It is for your sake that I have borne reproach, that shame has covered my face.
+###### v8
+I have become a stranger to my kindred, an alien to my mother's children.
+###### v9
+It is zeal for your house that has consumed me; the insults of those who insult you have fallen on me.
+###### v10
+When I humbled my soul with fasting, they insulted me for doing so.
+###### v11
+When I made sackcloth my clothing, I became a byword to them.
+###### v12
+I am the subject of gossip for those who sit in the gate, and the drunkards make songs about me.
+###### v13
+But as for me, my prayer is to you, O LORD. At an acceptable time, O God, in the abundance of your steadfast love, answer me. With your faithful help
+###### v14
+rescue me from sinking in the mire; let me be delivered from my enemies and from the deep waters.
+###### v15
+Do not let the flood sweep over me, or the deep swallow me up, or the Pit close its mouth over me.
+###### v16
+Answer me, O LORD, for your steadfast love is good; according to your abundant mercy, turn to me.
+###### v17
+Do not hide your face from your servant, for I am in distress-- make haste to answer me.
+###### v18
+Draw near to me, redeem me, set me free because of my enemies.
+###### v19
+You know the insults I receive, and my shame and dishonor; my foes are all known to you.
+###### v20
+Insults have broken my heart, so that I am in despair. I looked for pity, but there was none; and for comforters, but I found none.
+###### v21
+They gave me poison for food, and for my thirst they gave me vinegar to drink.
+###### v22
+Let their table be a trap for them, a snare for their allies.
+###### v23
+Let their eyes be darkened so that they cannot see, and make their loins tremble continually.
+###### v24
+Pour out your indignation upon them, and let your burning anger overtake them.
+###### v25
+May their camp be a desolation; let no one live in their tents.
+###### v26
+For they persecute those whom you have struck down, and those whom you have wounded, they attack still more.
+###### v27
+Add guilt to their guilt; may they have no acquittal from you.
+###### v28
+Let them be blotted out of the book of the living; let them not be enrolled among the righteous.
+###### v29
+But I am lowly and in pain; let your salvation, O God, protect me.
+###### v30
+I will praise the name of God with a song; I will magnify him with thanksgiving.
+###### v31
+This will please the LORD more than an ox or a bull with horns and hoofs.
+###### v32
+Let the oppressed see it and be glad; you who seek God, let your hearts revive.
+###### v33
+For the LORD hears the needy, and does not despise his own that are in bonds.
+###### v34
+Let heaven and earth praise him, the seas and everything that moves in them.
+###### v35
+For God will save Zion and rebuild the cities of Judah; and his servants shall live there and possess it;
+###### v36
+the children of his servants shall inherit it, and those who love his name shall live in it.
+
+***
+
+[[Psa-68|Psalm - Chapter 68 ]] | [[Psalm]] | [[Psa-70|Psalm - Chapter 70 ]]

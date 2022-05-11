@@ -1,0 +1,31 @@
+# Jonah 4
+
+[[Jon-03|Jonah - Chapter 3]] | [[Jonah]]
+***
+
+###### v1
+But this was very displeasing to Jonah, and he became angry.
+###### v2
+He prayed to the LORD and said, "O LORD! Is not this what I said while I was still in my own country? That is why I fled to Tarshish at the beginning; for I knew that you are a gracious God and merciful, slow to anger, and abounding in steadfast love, and ready to relent from punishing.
+###### v3
+And now, O LORD, please take my life from me, for it is better for me to die than to live."
+###### v4
+And the LORD said, "Is it right for you to be angry?"
+###### v5
+Then Jonah went out of the city and sat down east of the city, and made a booth for himself there. He sat under it in the shade, waiting to see what would become of the city.
+###### v6
+The LORD God appointed a bush, and made it come up over Jonah, to give shade over his head, to save him from his discomfort; so Jonah was very happy about the bush.
+###### v7
+But when dawn came up the next day, God appointed a worm that attacked the bush, so that it withered.
+###### v8
+When the sun rose, God prepared a sultry east wind, and the sun beat down on the head of Jonah so that he was faint and asked that he might die. He said, "It is better for me to die than to live."
+###### v9
+But God said to Jonah, "Is it right for you to be angry about the bush?" And he said, "Yes, angry enough to die."
+###### v10
+Then the LORD said, "You are concerned about the bush, for which you did not labor and which you did not grow; it came into being in a night and perished in a night.
+###### v11
+And should I not be concerned about Nineveh, that great city, in which there are more than a hundred and twenty thousand persons who do not know their right hand from their left, and also many animals?"
+
+***
+
+[[Jon-03|Jonah - Chapter 3]] | [[Jonah]]

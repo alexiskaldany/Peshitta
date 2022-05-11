@@ -1,0 +1,31 @@
+# Revelation 4
+
+[[Rev-03|Revelation - Chapter 3 ]] | [[Revelation]] | [[Rev-05|Revelation - Chapter 5 ]]
+***
+
+###### v1
+After this I looked, and there in heaven a door stood open! And the first voice, which I had heard speaking to me like a trumpet, said, "Come up here, and I will show you what must take place after this."
+###### v2
+At once I was in the spirit, and there in heaven stood a throne, with one seated on the throne!
+###### v3
+And the one seated there looks like jasper and carnelian, and around the throne is a rainbow that looks like an emerald.
+###### v4
+Around the throne are twenty-four thrones, and seated on the thrones are twenty-four elders, dressed in white robes, with golden crowns on their heads.
+###### v5
+Coming from the throne are flashes of lightning, and rumblings and peals of thunder, and in front of the throne burn seven flaming torches, which are the seven spirits of God;
+###### v6
+and in front of the throne there is something like a sea of glass, like crystal. Around the throne, and on each side of the throne, are four living creatures, full of eyes in front and behind:
+###### v7
+the first living creature like a lion, the second living creature like an ox, the third living creature with a face like a human face, and the fourth living creature like a flying eagle.
+###### v8
+And the four living creatures, each of them with six wings, are full of eyes all around and inside. Day and night without ceasing they sing, "Holy, holy, holy, the Lord God the Almighty, who was and is and is to come."
+###### v9
+And whenever the living creatures give glory and honor and thanks to the one who is seated on the throne, who lives forever and ever,
+###### v10
+the twenty-four elders fall before the one who is seated on the throne and worship the one who lives forever and ever; they cast their crowns before the throne, singing,
+###### v11
+"You are worthy, our Lord and God, to receive glory and honor and power, for you created all things, and by your will they existed and were created."
+
+***
+
+[[Rev-03|Revelation - Chapter 3 ]] | [[Revelation]] | [[Rev-05|Revelation - Chapter 5 ]]

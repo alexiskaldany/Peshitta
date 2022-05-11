@@ -1,0 +1,19 @@
+# Jeremiah 45
+
+[[Jer-44|Jeremiah - Chapter 44 ]] | [[Jeremiah]] | [[Jer-46|Jeremiah - Chapter 46 ]]
+***
+
+###### v1
+The word that the prophet Jeremiah spoke to Baruch son of Neriah, when he wrote these words in a scroll at the dictation of Jeremiah, in the fourth year of King Jehoiakim son of Josiah of Judah:
+###### v2
+Thus says the LORD, the God of Israel, to you, O Baruch:
+###### v3
+You said, "Woe is me! The LORD has added sorrow to my pain; I am weary with my groaning, and I find no rest."
+###### v4
+Thus you shall say to him, "Thus says the LORD: I am going to break down what I have built, and pluck up what I have planted-- that is, the whole land.
+###### v5
+And you, do you seek great things for yourself? Do not seek them; for I am going to bring disaster upon all flesh, says the LORD; but I will give you your life as a prize of war in every place to which you may go."
+
+***
+
+[[Jer-44|Jeremiah - Chapter 44 ]] | [[Jeremiah]] | [[Jer-46|Jeremiah - Chapter 46 ]]

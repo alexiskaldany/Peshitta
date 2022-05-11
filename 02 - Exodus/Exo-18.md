@@ -1,0 +1,63 @@
+# Exodus 18
+
+[[Exo-17|Exodus - Chapter 17 ]] | [[Exodus]] | [[Exo-19|Exodus - Chapter 19 ]]
+***
+
+###### v1
+Jethro, the priest of Midian, Moses' father-in-law, heard of all that God had done for Moses and for his people Israel, how the LORD had brought Israel out of Egypt.
+###### v2
+After Moses had sent away his wife Zipporah, his father-in-law Jethro took her back,
+###### v3
+along with her two sons. The name of the one was Gershom (for he said, "I have been an alien in a foreign land"),
+###### v4
+and the name of the other, Eliezer (for he said, "The God of my father was my help, and delivered me from the sword of Pharaoh").
+###### v5
+Jethro, Moses' father-in-law, came into the wilderness where Moses was encamped at the mountain of God, bringing Moses' sons and wife to him.
+###### v6
+He sent word to Moses, "I, your father-in-law Jethro, am coming to you, with your wife and her two sons."
+###### v7
+Moses went out to meet his father-in-law; he bowed down and kissed him; each asked after the other's welfare, and they went into the tent.
+###### v8
+Then Moses told his father-in-law all that the LORD had done to Pharaoh and to the Egyptians for Israel's sake, all the hardship that had beset them on the way, and how the LORD had delivered them.
+###### v9
+Jethro rejoiced for all the good that the LORD had done to Israel, in delivering them from the Egyptians.
+###### v10
+Jethro said, "Blessed be the LORD, who has delivered you from the Egyptians and from Pharaoh.
+###### v11
+Now I know that the LORD is greater than all gods, because he delivered the people from the Egyptians, when they dealt arrogantly with them."
+###### v12
+And Jethro, Moses' father-in-law, brought a burnt offering and sacrifices to God; and Aaron came with all the elders of Israel to eat bread with Moses' father-in-law in the presence of God.
+###### v13
+The next day Moses sat as judge for the people, while the people stood around him from morning until evening.
+###### v14
+When Moses' father-in-law saw all that he was doing for the people, he said, "What is this that you are doing for the people? Why do you sit alone, while all the people stand around you from morning until evening?"
+###### v15
+Moses said to his father-in-law, "Because the people come to me to inquire of God.
+###### v16
+When they have a dispute, they come to me and I decide between one person and another, and I make known to them the statutes and instructions of God."
+###### v17
+Moses' father-in-law said to him, "What you are doing is not good.
+###### v18
+You will surely wear yourself out, both you and these people with you. For the task is too heavy for you; you cannot do it alone.
+###### v19
+Now listen to me. I will give you counsel, and God be with you! You should represent the people before God, and you should bring their cases before God;
+###### v20
+teach them the statutes and instructions and make known to them the way they are to go and the things they are to do.
+###### v21
+You should also look for able men among all the people, men who fear God, are trustworthy, and hate dishonest gain; set such men over them as officers over thousands, hundreds, fifties and tens.
+###### v22
+Let them sit as judges for the people at all times; let them bring every important case to you, but decide every minor case themselves. So it will be easier for you, and they will bear the burden with you.
+###### v23
+If you do this, and God so commands you, then you will be able to endure, and all these people will go to their home in peace."
+###### v24
+So Moses listened to his father-in-law and did all that he had said.
+###### v25
+Moses chose able men from all Israel and appointed them as heads over the people, as officers over thousands, hundreds, fifties, and tens.
+###### v26
+And they judged the people at all times; hard cases they brought to Moses, but any minor case they decided themselves.
+###### v27
+Then Moses let his father-in-law depart, and he went off to his own country.
+
+***
+
+[[Exo-17|Exodus - Chapter 17 ]] | [[Exodus]] | [[Exo-19|Exodus - Chapter 19 ]]

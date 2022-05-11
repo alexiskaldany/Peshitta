@@ -1,0 +1,45 @@
+# Deuteronomy 13
+
+[[Deu-12|Deuteronomy - Chapter 12 ]] | [[Deuteronomy]] | [[Deu-14|Deuteronomy - Chapter 14 ]]
+***
+
+###### v1
+If prophets or those who divine by dreams appear among you and promise you omens or portents,
+###### v2
+and the omens or the portents declared by them take place, and they say, "Let us follow other gods" (whom you have not known) "and let us serve them,"
+###### v3
+you must not heed the words of those prophets or those who divine by dreams; for the LORD your God is testing you, to know whether you indeed love the LORD your God with all your heart and soul.
+###### v4
+The LORD your God you shall follow, him alone you shall fear, his commandments you shall keep, his voice you shall obey, him you shall serve, and to him you shall hold fast.
+###### v5
+But those prophets or those who divine by dreams shall be put to death for having spoken treason against the LORD your God-- who brought you out of the land of Egypt and redeemed you from the house of slavery-- to turn you from the way in which the LORD your God commanded you to walk. So you shall purge the evil from your midst.
+###### v6
+If anyone secretly entices you-- even if it is your brother, your father's son or your mother's son, or your own son or daughter, or the wife you embrace, or your most intimate friend-- saying, "Let us go worship other gods," whom neither you nor your ancestors have known,
+###### v7
+any of the gods of the peoples that are around you, whether near you or far away from you, from one end of the earth to the other,
+###### v8
+you must not yield to or heed any such persons. Show them no pity or compassion and do not shield them.
+###### v9
+But you shall surely kill them; your own hand shall be first against them to execute them, and afterwards the hand of all the people.
+###### v10
+Stone them to death for trying to turn you away from the LORD your God, who brought you out of the land of Egypt, out of the house of slavery.
+###### v11
+Then all Israel shall hear and be afraid, and never again do any such wickedness.
+###### v12
+If you hear it said about one of the towns that the LORD your God is giving you to live in,
+###### v13
+that scoundrels from among you have gone out and led the inhabitants of the town astray, saying, "Let us go and worship other gods," whom you have not known,
+###### v14
+then you shall inquire and make a thorough investigation. If the charge is established that such an abhorrent thing has been done among you,
+###### v15
+you shall put the inhabitants of that town to the sword, utterly destroying it and everything in it-- even putting its livestock to the sword.
+###### v16
+All of its spoil you shall gather into its public square; then burn the town and all its spoil with fire, as a whole burnt offering to the LORD your God. It shall remain a perpetual ruin, never to be rebuilt.
+###### v17
+Do not let anything devoted to destruction stick to your hand, so that the LORD may turn from his fierce anger and show you compassion, and in his compassion multiply you, as he swore to your ancestors,
+###### v18
+if you obey the voice of the LORD your God by keeping all his commandments that I am commanding you today, doing what is right in the sight of the LORD your God.
+
+***
+
+[[Deu-12|Deuteronomy - Chapter 12 ]] | [[Deuteronomy]] | [[Deu-14|Deuteronomy - Chapter 14 ]]

@@ -1,0 +1,29 @@
+# Esther 7
+
+[[Est-06|Esther - Chapter 6 ]] | [[Esther]] | [[Est-08|Esther - Chapter 8 ]]
+***
+
+###### v1
+So the king and Haman went in to feast with Queen Esther.
+###### v2
+On the second day, as they were drinking wine, the king again said to Esther, "What is your petition, Queen Esther? It shall be granted you. And what is your request? Even to the half of my kingdom, it shall be fulfilled."
+###### v3
+Then Queen Esther answered, "If I have won your favor, O king, and if it pleases the king, let my life be given me-- that is my petition-- and the lives of my people-- that is my request.
+###### v4
+For we have been sold, I and my people, to be destroyed, to be killed, and to be annihilated. If we had been sold merely as slaves, men and women, I would have held my peace; but no enemy can compensate for this damage to the king."
+###### v5
+Then King Ahasuerus said to Queen Esther, "Who is he, and where is he, who has presumed to do this?"
+###### v6
+Esther said, "A foe and enemy, this wicked Haman!" Then Haman was terrified before the king and the queen.
+###### v7
+The king rose from the feast in wrath and went into the palace garden, but Haman stayed to beg his life from Queen Esther, for he saw that the king had determined to destroy him.
+###### v8
+When the king returned from the palace garden to the banquet hall, Haman had thrown himself on the couch where Esther was reclining; and the king said, "Will he even assault the queen in my presence, in my own house?" As the words left the mouth of the king, they covered Haman's face.
+###### v9
+Then Harbona, one of the eunuchs in attendance on the king, said, "Look, the very gallows that Haman has prepared for Mordecai, whose word saved the king, stands at Haman's house, fifty cubits high." And the king said, "Hang him on that."
+###### v10
+So they hanged Haman on the gallows that he had prepared for Mordecai. Then the anger of the king abated.
+
+***
+
+[[Est-06|Esther - Chapter 6 ]] | [[Esther]] | [[Est-08|Esther - Chapter 8 ]]

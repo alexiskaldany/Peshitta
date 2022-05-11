@@ -1,0 +1,41 @@
+# Ecclesiastes 4
+
+[[Ecc-03|Ecclesiastes - Chapter 3 ]] | [[Ecclesiastes]] | [[Ecc-05|Ecclesiastes - Chapter 5 ]]
+***
+
+###### v1
+Again I saw all the oppressions that are practiced under the sun. Look, the tears of the oppressed-- with no one to comfort them! On the side of their oppressors there was power-- with no one to comfort them.
+###### v2
+And I thought the dead, who have already died, more fortunate than the living, who are still alive;
+###### v3
+but better than both is the one who has not yet been, and has not seen the evil deeds that are done under the sun.
+###### v4
+Then I saw that all toil and all skill in work come from one person's envy of another. This also is vanity and a chasing after wind.
+###### v5
+Fools fold their hands and consume their own flesh.
+###### v6
+Better is a handful with quiet than two handfuls with toil, and a chasing after wind.
+###### v7
+Again, I saw vanity under the sun:
+###### v8
+the case of solitary individuals, without sons or brothers; yet there is no end to all their toil, and their eyes are never satisfied with riches. "For whom am I toiling," they ask, "and depriving myself of pleasure?" This also is vanity and an unhappy business.
+###### v9
+Two are better than one, because they have a good reward for their toil.
+###### v10
+For if they fall, one will lift up the other; but woe to one who is alone and falls and does not have another to help.
+###### v11
+Again, if two lie together, they keep warm; but how can one keep warm alone?
+###### v12
+And though one might prevail against another, two will withstand one. A threefold cord is not quickly broken.
+###### v13
+Better is a poor but wise youth than an old but foolish king, who will no longer take advice.
+###### v14
+One can indeed come out of prison to reign, even though born poor in the kingdom.
+###### v15
+I saw all the living who, moving about under the sun, follow that youth who replaced the king;
+###### v16
+there was no end to all those people whom he led. Yet those who come later will not rejoice in him. Surely this also is vanity and a chasing after wind.
+
+***
+
+[[Ecc-03|Ecclesiastes - Chapter 3 ]] | [[Ecclesiastes]] | [[Ecc-05|Ecclesiastes - Chapter 5 ]]

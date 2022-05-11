@@ -1,0 +1,43 @@
+# Ecclesiastes 8
+
+[[Ecc-07|Ecclesiastes - Chapter 7 ]] | [[Ecclesiastes]] | [[Ecc-09|Ecclesiastes - Chapter 9 ]]
+***
+
+###### v1
+Who is like the wise man? And who knows the interpretation of a thing? Wisdom makes one's face shine, and the hardness of one's countenance is changed.
+###### v2
+Keep the king's command because of your sacred oath.
+###### v3
+Do not be terrified; go from his presence, do not delay when the matter is unpleasant, for he does whatever he pleases.
+###### v4
+For the word of the king is powerful, and who can say to him, "What are you doing?"
+###### v5
+Whoever obeys a command will meet no harm, and the wise mind will know the time and way.
+###### v6
+For every matter has its time and way, although the troubles of mortals lie heavy upon them.
+###### v7
+Indeed, they do not know what is to be, for who can tell them how it will be?
+###### v8
+No one has power over the wind to restrain the wind, or power over the day of death; there is no discharge from the battle, nor does wickedness deliver those who practice it.
+###### v9
+All this I observed, applying my mind to all that is done under the sun, while one person exercises authority over another to the other's hurt.
+###### v10
+Then I saw the wicked buried; they used to go in and out of the holy place, and were praised in the city where they had done such things. This also is vanity.
+###### v11
+Because sentence against an evil deed is not executed speedily, the human heart is fully set to do evil.
+###### v12
+Though sinners do evil a hundred times and prolong their lives, yet I know that it will be well with those who fear God, because they stand in fear before him,
+###### v13
+but it will not be well with the wicked, neither will they prolong their days like a shadow, because they do not stand in fear before God.
+###### v14
+There is a vanity that takes place on earth, that there are righteous people who are treated according to the conduct of the wicked, and there are wicked people who are treated according to the conduct of the righteous. I said that this also is vanity.
+###### v15
+So I commend enjoyment, for there is nothing better for people under the sun than to eat, and drink, and enjoy themselves, for this will go with them in their toil through the days of life that God gives them under the sun.
+###### v16
+When I applied my mind to know wisdom, and to see the business that is done on earth, how one's eyes see sleep neither day nor night,
+###### v17
+then I saw all the work of God, that no one can find out what is happening under the sun. However much they may toil in seeking, they will not find it out; even though those who are wise claim to know, they cannot find it out.
+
+***
+
+[[Ecc-07|Ecclesiastes - Chapter 7 ]] | [[Ecclesiastes]] | [[Ecc-09|Ecclesiastes - Chapter 9 ]]

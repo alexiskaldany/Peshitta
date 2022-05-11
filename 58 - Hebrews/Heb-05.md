@@ -1,0 +1,37 @@
+# Hebrews 5
+
+[[Heb-04|Hebrews - Chapter 4 ]] | [[Hebrews]] | [[Heb-06|Hebrews - Chapter 6 ]]
+***
+
+###### v1
+Every high priest chosen from among mortals is put in charge of things pertaining to God on their behalf, to offer gifts and sacrifices for sins.
+###### v2
+He is able to deal gently with the ignorant and wayward, since he himself is subject to weakness;
+###### v3
+and because of this he must offer sacrifice for his own sins as well as for those of the people.
+###### v4
+And one does not presume to take this honor, but takes it only when called by God, just as Aaron was.
+###### v5
+So also Christ did not glorify himself in becoming a high priest, but was appointed by the one who said to him, "You are my Son, today I have begotten you";
+###### v6
+as he says also in another place, "You are a priest forever, according to the order of Melchizedek."
+###### v7
+In the days of his flesh, Jesus offered up prayers and supplications, with loud cries and tears, to the one who was able to save him from death, and he was heard because of his reverent submission.
+###### v8
+Although he was a Son, he learned obedience through what he suffered;
+###### v9
+and having been made perfect, he became the source of eternal salvation for all who obey him,
+###### v10
+having been designated by God a high priest according to the order of Melchizedek.
+###### v11
+About this we have much to say that is hard to explain, since you have become dull in understanding.
+###### v12
+For though by this time you ought to be teachers, you need someone to teach you again the basic elements of the oracles of God. You need milk, not solid food;
+###### v13
+for everyone who lives on milk, being still an infant, is unskilled in the word of righteousness.
+###### v14
+But solid food is for the mature, for those whose faculties have been trained by practice to distinguish good from evil.
+
+***
+
+[[Heb-04|Hebrews - Chapter 4 ]] | [[Hebrews]] | [[Heb-06|Hebrews - Chapter 6 ]]
