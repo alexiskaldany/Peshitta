@@ -326,6 +326,8 @@ By the tender mercy of our God, the dawn from on high will break upon us,
 
 to give light to those who sit in darkness and in the shadow of death, to guide our feet into the way of peace."
 
+- best lines
+
 ###### v80
 
 The child grew and became strong in spirit, and he was in the wilderness until the day he appeared publicly to Israel.
