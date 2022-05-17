@@ -30,6 +30,8 @@ In the days of King Herod of Judea, there was a priest named Zechariah, who belo
 
 Both of them were righteous before God, living blamelessly according to all the commandments and regulations of the Lord.
 
+- Even with complete committment we may not receive what we desire or what we believe we deserve
+
 ###### v7
 
 But they had no children, because Elizabeth was barren, and both were getting on in years.
@@ -56,7 +58,7 @@ When Zechariah saw him, he was terrified; and fear overwhelmed him.
 
 ###### v13
 
-But the angel said to him,=="Do not be afraid, Zechariah, for your prayer has been heard. Your wife Elizabeth will bear you a son, and you will name him John.==
+But the angel said to him,"Do not be afraid, Zechariah, for your prayer has been heard. Your wife Elizabeth will bear you a son, and you will name him John.
 
 ###### v14
 
@@ -69,6 +71,8 @@ for he will be great in the sight of the Lord. He must never drink wine or stron
 ###### v16
 
 He will turn many of the people of Israel to the Lord their God.
+
+- Implying many of the People of Israel do not currently face the Lord their God.
 
 ###### v17
 

@@ -1,5 +1,5 @@
 # Peshitta
-Markdown Version of NSRV, annotated by Alexis Kaldany
+Markdown Version of NRSV, annotated by Alexis Kaldany
 
 All bullit point remarks and bolded verses were done by me. 
 
