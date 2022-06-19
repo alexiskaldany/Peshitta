@@ -207,6 +207,8 @@ That one is like a man building a house, who dug deeply and laid the foundation 
 
 But the one who hears and does not act is like a man who built a house on the ground without a foundation. When the river burst against it, immediately it fell, and great was the ruin of that house."
 
+- Hard to here these last verses
+
 ---
 
 [[Luk-05|Luke - Chapter 5]] | [[Luke]] | [[Luk-07|Luke - Chapter 7]]
